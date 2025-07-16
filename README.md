@@ -60,4 +60,4 @@
 
 ### 📫 ¿Te interesa colaborar?
 Estoy abierto a oportunidades laborales y colaboraciones en proyectos innovadores.  
-Puedes escribirme directamente por [LinkedIn](https://www.linkedin.com/in/geysonvalladares/) o a mi correo: geyson.valladares@gmail.com
+Puedes escribirme directamente por [LinkedIn](https://www.linkedin.com/in/geysonvalladares/) o a mi correo: gvalladaresbazalar@gmail.com
